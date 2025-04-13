@@ -1,16 +1,14 @@
-## Hi there 👋
+ ![cooltext480454818312670](https://github.com/user-attachments/assets/553909d1-0719-49b9-84a8-035d5e9494c8) 
 
-<!--
-**ManBagel/ManBagel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+***(man bagel the first)***
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+
+i hereby declare me, perchance furry sir man bagel to be an heir to the frone of pardo man 1
+
+
+
+
