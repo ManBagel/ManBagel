@@ -1,13 +1,7 @@
- ![cooltext480454818312670](https://github.com/user-attachments/assets/553909d1-0719-49b9-84a8-035d5e9494c8) 
+<h1 align="center">Creature of Steel</h1>
+<p align="center"><i>(MiGLifeCrisis)</i></p>
+<p align="center">"Gnarp" said the creature, before losing all cognitive brain function.</p>
 
-
-***(man bagel the first)***
-
-
-
-
-
-i hereby declare me, perchance furry sir man bagel to be an heir to the frone of pardo man 1
 
 
 
